@@ -1,5 +1,6 @@
 ## Hi there 👋
 I would describe myself as someone who is excited and curious to explore almost everything!! I wanna try out new things, fail, succeed, observe around and learn
+i have a mind full of curiosity and ideas rush
 <!--
 **greensharkabc-ship-it/greensharkabc-ship-it** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
