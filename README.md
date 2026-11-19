@@ -3,7 +3,11 @@ I would describe myself as someone who is excited and curious to explore almost 
 
 i have a mind full of curiosity and ideas rush
 
-i like getting mentally stimulated, by performing intellectual tasks
+i like getting mentally stimulated, by performing intellectual tasks. i like having a lot of things on my plate, gives me satisfaction.
+
+im currently learning tech and exploring various tech-related stuff.
+
+im also working on some startup ideas of mine, the ideas that i once had when i was a pre-teen (and wrote them out somewhere) but never actually worked on.
 <!--
 **greensharkabc-ship-it/greensharkabc-ship-it** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
